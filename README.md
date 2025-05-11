@@ -21,6 +21,87 @@
 ✅ Traffic comes AUTOMATICALLY
 ✅ Commissions roll in 24/7</p>
 <p class="ds-markdown-paragraph">That's exactly what the <strong>MagicStore AI OTO upgrades</strong> deliver. And today, I'm going to show you EXACTLY how they work.</p>
+# 🪄 MagicStore AI – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front End link** below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/bwktgtp/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🏪 Front End (FE): MagicStore AI  
+🛒 Build powerful AI eCommerce stores in minutes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/bwktgtp/0/g`
+
+---
+
+## 🚀 OTO 1: MagicStore AI Pro  
+💼 Unlock premium features for better store performance  
+👉 `megamartai[dot]com/pro/`  
+💸 Discount: `$5`
+
+---
+
+## ♾️ OTO 2: MagicStore AI Unlimited  
+🔓 Remove limits, scale to the moon  
+👉 `megamartai[dot]com/unlimited`  
+💸 Discount: `$30`
+
+---
+
+## 📦 OTO 3: MagicStore AI DFY  
+🧰 Done-for-you store setup & automation  
+👉 `megamartai[dot]com/done-for-you/`  
+💸 Discount: `$50`
+
+---
+
+## 🏢 OTO 4: MagicStore AI Agency  
+👥 Offer AI store services under your brand  
+👉 `megamartai[dot]com/agency/`  
+💸 Discount: `$80`
+
+---
+
+## ⚙️ OTO 5: MagicStore AI Automation  
+🤖 Automate daily operations for passive profits  
+👉 `megamartai[dot]com/automation/`  
+💸 Discount: `$5`
+
+---
+
+## 💰 OTO 6: MagicStore AI Reseller  
+🛍️ Sell MagicStore AI and keep 100% of the profits  
+👉 `megamartai[dot]com/reseller/`  
+💸 Discount: `$20`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/magicstore-ai/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **MagicStore AI** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm you completed Step 2 via email!
+
+---
 
 <h2><strong>MagicStore AI OTO: The Secret Weapon Top Earners Use</strong></h2>
 <p class="ds-markdown-paragraph">While the basic version is good, the REAL power comes from the OTOs. These aren't just "nice-to-have" extras - they're <strong>profit multipliers</strong> that separate the winners from the struggling masses.</p>
@@ -234,3 +315,84 @@
 <p class="ds-markdown-paragraph">Don't be the person who regrets missing out later. The upgrades pay for themselves FAST.</p>
 <p class="ds-markdown-paragraph"><strong>Warning:</strong> This offer disappears when the timer hits zero.</p>
 <p class="ds-markdown-paragraph"><a target="_blank" rel="noreferrer">🔥 <strong>Get MagicStore AI + OTOs Now Before It's Gone</strong></a></p>
+# 🪄 MagicStore AI – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front End link** below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/bwktgtp/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🏪 Front End (FE): MagicStore AI  
+🛒 Build powerful AI eCommerce stores in minutes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/bwktgtp/0/g`
+
+---
+
+## 🚀 OTO 1: MagicStore AI Pro  
+💼 Unlock premium features for better store performance  
+👉 `megamartai[dot]com/pro/`  
+💸 Discount: `$5`
+
+---
+
+## ♾️ OTO 2: MagicStore AI Unlimited  
+🔓 Remove limits, scale to the moon  
+👉 `megamartai[dot]com/unlimited`  
+💸 Discount: `$30`
+
+---
+
+## 📦 OTO 3: MagicStore AI DFY  
+🧰 Done-for-you store setup & automation  
+👉 `megamartai[dot]com/done-for-you/`  
+💸 Discount: `$50`
+
+---
+
+## 🏢 OTO 4: MagicStore AI Agency  
+👥 Offer AI store services under your brand  
+👉 `megamartai[dot]com/agency/`  
+💸 Discount: `$80`
+
+---
+
+## ⚙️ OTO 5: MagicStore AI Automation  
+🤖 Automate daily operations for passive profits  
+👉 `megamartai[dot]com/automation/`  
+💸 Discount: `$5`
+
+---
+
+## 💰 OTO 6: MagicStore AI Reseller  
+🛍️ Sell MagicStore AI and keep 100% of the profits  
+👉 `megamartai[dot]com/reseller/`  
+💸 Discount: `$20`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/magicstore-ai/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **MagicStore AI** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm you completed Step 2 via email!
+
+---
